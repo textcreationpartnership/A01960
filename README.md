@@ -35,9 +35,11 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The prayse of all women, called Mulieru[m] pean Very fruytfull and delectable vnto all the reders. L
+
 #####Body#####
-The prayse of all women, called Mulieru[m] pean Very fruytfull and delectable vnto all the reders. L
+WHat tyme ye crabbe hꝭ course had pastAnd Phebus atteyned the AquaryeThe selfe same time whā it fro
+1. ☞ The authour.
+
 **Types of content**
 
   * There are 1015 **verse** lines!
